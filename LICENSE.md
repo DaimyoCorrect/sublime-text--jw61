@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Sublime Text for PC | Sublime Text for Windows snippet with exclusive Sublime Text for PC | Sublime Text for Windows Snippet | markdown-preview + code-folding.
 
 
 
